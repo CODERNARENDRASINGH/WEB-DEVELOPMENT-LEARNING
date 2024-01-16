@@ -1,2 +1,2 @@
 # WEB-DEVELOPMENT-LEARNING
-Hi there, My Name is Narendra Singh i here to start journey of learning web-development share it with you 🤗🤗.
+Hello, I'm Narendra Singh, and I'm excited to embark on the journey of learning web development. I look forward to sharing this experience with you! 🤗🤗
